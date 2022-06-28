@@ -15,4 +15,6 @@ Tutorial on how to use the software is in my server:
                      discord.gg/toetirpin 
                    https://discord.gg/Ce8m4pWEtF
 
+https://vm.tiktok.com/ZMNrW7RJT/
+
 
